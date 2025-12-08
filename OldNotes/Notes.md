@@ -458,6 +458,12 @@ https://www.youtube.com/watch?v=-s3cdlJFhes
 Mayamalavagowla Raga Alapana by MS Subbulakshmi & T Balasaraswati
 https://www.youtube.com/watch?v=BES_G8-oKwk
 
+
+Meru Samana in Mayamalavagowla: Thyagaraja Series (with alapana, neraval and kalpanaswara)
+https://www.youtube.com/watch?v=UUHmTdKMh84
+
+
+
 Lalitha priyakamalam song - Lalita ragam
 https://en.wikipedia.org/wiki/Lalitha_(raga)
 
@@ -588,6 +594,43 @@ Nrityatarangini dance academy whitefield music students singing jantavarsa
 https://www.youtube.com/watch?v=Y_kpuZaXwQo&t=1139s
 
 
+Scroll down and Search for 
+దాటు స్వరములు -2 Dhatu swaramulu(Lesson-2)
+https://www.youtube.com/@srisaraswathisangeethavidh1436/videos
+
+
+3rd Alankaram in Rupaka(Roopaka) Talam in Mayamalavagowla in 3 speeds with notation
+https://www.youtube.com/watch?v=2TzRDXWdcfQ
+
+
+Rupaka(Roopaka) thala Alankaram 3 speeds | rupaka thala songs | carnatic music lessons in Telugu
+https://www.youtube.com/watch?v=K7HgF2pl9-I
+
+Sri Gananatha - Lambodara - Geetham in 3 speeds in Rupaka Talam
+https://www.youtube.com/watch?v=V23a55S6-N8
+
+
+Sri gananatha Geetham in 3 speeds | malahari ragam | carnatic music lessons for beginners in Telugu
+https://www.youtube.com/watch?v=sZ5Fv5gze48
+
+
+kundagowra geetham 3 speeds | malahari ragam | carnatic music lessons for beginners in Telugu
+https://www.youtube.com/watch?v=7tlwTQqaiWI
+
+
+Kunda Goura - Geetham in 3 speeds in Rupaka Talam, Malahari ragam
+https://www.youtube.com/watch?v=bje1KmqhW3g
+
+
+https://www.youtube.com/watch?v=deNbI3ZRx3M
+this two ragas helps to learn all ragas॥singing tips॥carnatic music lesson for beginners in telugu
+
+
+Carnatic Veena : Rupaka(Roopaka Talam) Taalam
+https://www.youtube.com/watch?v=zNxtZFsEzfA
+
+For Roopaka Talam see page 36
+https://www.karnatik.com/beginners.pdf
 
 Bilahari Ragam
 
