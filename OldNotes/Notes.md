@@ -199,10 +199,14 @@ https://www.youtube.com/watch?v=7O8AHC-c2aI
 https://www.youtube.com/watch?v=j514z_NKByE
 Sikkil Gurucharan - rAma nI samAnamevaru - kharaharapriyA - tyAgarAja
 
-
 Neelambari, Nilambari
 Melodious & Graceful Devi Keertanam "Sringara Lahari" by Kameshweri Ganesan - Sridevi Nrithyalaya
 https://www.youtube.com/watch?v=uAqMJfJB5RE
+
+
+Neelambari song | Aishwarya Srinivas
+The OG Neelambari Entry 🔥| Carnatic classical Style | Aishwarya Srinivas #trending
+https://www.youtube.com/watch?v=uYnSCDZmy2Y
 
 Uyyala Loogavayya
 https://www.youtube.com/watch?v=souK1R2-cOI
@@ -405,6 +409,12 @@ https://www.youtube.com/watch?v=9-GBEQnZEiY
 Sarali Varisai : 1 to 12 _3 Speeds With my Student, Acharya kripa
 https://www.youtube.com/watch?v=ttJABXnV3ks
 
+Sarali Swaras : Part 1 : Sarali Varisalu : Sarali Swaramulu : Sarali Varasai : First Speed Telugu
+https://www.youtube.com/watch?v=esfXn4zvMfA
+
+Class - 2 | Sarali Swaras -2,3,4 | Carnatic Music Lessons For Beginners
+https://www.youtube.com/watch?v=gbMJi5BHbbU
+
 https://www.youtube.com/watch?v=tS_QAB2MXRg
 How to practice Mayamalavagowla with Gamaka's | session - 2 | Tutorial | Raga Mentor
 
@@ -422,6 +432,33 @@ Believed to be Dikshitar’s very first composition
 Mayamalavagowla Rupaka Talam
 Kalpana Swaras - Easy tip for students
 https://www.youtube.com/watch?v=ce0Qalzoy0c
+
+
+Vidya Subramanian
+Fun with Carnatic music - Kaarvai Exercise | Karvai
+https://www.youtube.com/watch?v=rjVMuzOqJAo
+
+Karvai Exercise. Try it now! Music Mitra | Kaarvai
+https://www.youtube.com/watch?v=xBsQE9RQCYU
+
+
+Bruga Sadhaka Varisais
+https://www.youtube.com/watch?v=av0Q-eGH9i8
+
+Bruga sadhaka varisai/ Lesson - 2
+https://www.youtube.com/watch?v=av0Q-eGH9i8
+
+Search for more Bruga Sadhaka Varisai
+
+
+
+Karvai writing exercise
+https://www.youtube.com/watch?v=nC07QFhXV80
+
+Vidya Subramanian
+Fun with Carnatic music - Dhaatu Varisai Exercise
+https://www.youtube.com/watch?v=zZQKpWqED1w
+
 
 11. మాయా మాళవ గౌళ || రాగ వివరణ || పది తెలుగు సినిమా పాటలు || గాయని నాగేశ్వరి రూపాకుల
 Nageswari Rupakula
@@ -598,13 +635,32 @@ Scroll down and Search for
 దాటు స్వరములు -2 Dhatu swaramulu(Lesson-2)
 https://www.youtube.com/@srisaraswathisangeethavidh1436/videos
 
+Geetham 1 : Lambodhara Ragam : Malahari Ragam : శ్రీ గణనాథ (లంబోదర) ( Telugu Lyrics ) ( 1st speed )
+https://www.youtube.com/watch?v=8egb_GblF5k
 
-3rd Alankaram in Rupaka(Roopaka) Talam in Mayamalavagowla in 3 speeds with notation
-https://www.youtube.com/watch?v=2TzRDXWdcfQ
+
+Alankaram 3 ( English Lyrics ) : Chaturasra Jati Rupaka Talam Alankaram ( 1st speed )
+https://www.youtube.com/watch?v=peaFVRzbjvo
+
+
+Alankaram 3 ( English Lyrics ) : Chaturasra Jati Rupaka Talam Alankaram ( All 3 speeds )
+https://www.youtube.com/watch?v=1hKkrxbZKSQ
+
+
+Alankaram 3 ( Telugu Lyrics ) : చతురస్ర జాతి రూపక తాళము : Rupaka Talam ( 1st speed )
+https://www.youtube.com/watch?v=1NCQ9BjNwsM
+
+
+Alankaram 3 ( Telugu Lyrics ) : చతురస్ర జాతి రూపక తాళము : Rupaka Talam ( All 3 speeds )
+https://www.youtube.com/watch?v=O4A2mimljNw
 
 
 Rupaka(Roopaka) thala Alankaram 3 speeds | rupaka thala songs | carnatic music lessons in Telugu
 https://www.youtube.com/watch?v=K7HgF2pl9-I
+
+Easy tip for alankara singing in various ragas. Music Mitra - Bindu Nair
+https://www.youtube.com/shorts/Ry_fshEhGM0
+
 
 Sri Gananatha - Lambodara - Geetham in 3 speeds in Rupaka Talam
 https://www.youtube.com/watch?v=V23a55S6-N8
@@ -620,6 +676,14 @@ https://www.youtube.com/watch?v=7tlwTQqaiWI
 
 Kunda Goura - Geetham in 3 speeds in Rupaka Talam, Malahari ragam
 https://www.youtube.com/watch?v=bje1KmqhW3g
+
+#Padumanaabha (Swara - Sahithyam) #Malahari Ragam #Thrisra Jathi Thriputa ThaLam
+https://www.youtube.com/watch?v=Sb4Kree1OYQ
+
+
+#Keraya neeranu (Swaramu)#PiLLari Geethamu#Malahari Ragam #Thrisra Jathi Thriputa ThaLam
+https://www.youtube.com/watch?v=KM7HbgiuJZk
+https://meanjalisudheer.com/keraya-neeranu-geetam-in-telugu/
 
 
 https://www.youtube.com/watch?v=deNbI3ZRx3M
@@ -799,5 +863,10 @@ https://youtu.be/getDaflknaQ?t=539
 Vasanti
 https://youtu.be/getDaflknaQ?t=599
 
+
+
+https://www.youtube.com/watch?v=k4xyNIT7IsI
+Mohana Raga Patterns, Bindu Nayer, Music Mitra
+Stepping up and Tumbling down.
 
 
