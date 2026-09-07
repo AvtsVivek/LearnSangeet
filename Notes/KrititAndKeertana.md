@@ -25,5 +25,24 @@ https://www.youtube.com/watch?v=rT7nQBZk6tk
 
 
 
+Prakruti and Vikruti Swaras
+Sa and Pa are Prakruti Swaras. Others are called Vikruti
+https://www.youtube.com/watch?v=H7O2i1mdLiw
+
+
+NJN Lessons: Let's learn vadi, samvadi, anuvadi and vivadi
+https://www.youtube.com/shorts/QwDKMLced1w
+
+
+What are Vivadi Swaras and Vivadi Ragas?
+https://www.youtube.com/watch?v=VkPuasoy4j8
+
+
+Vadhi, Samvadhi, Anuvadhi, vivadhi swaras - explained. వాది, సంవాది, అనువాది, వివాది స్వరముల వివరణ.
+https://www.youtube.com/watch?v=hFD0WbbiGOw
+
+
+VIVADI RAGAS INTRODUCTION ||PART 1 ( ENGLISH)
+https://www.youtube.com/watch?v=kEToD1XASRk
 
 

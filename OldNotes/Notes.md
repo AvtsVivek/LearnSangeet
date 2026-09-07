@@ -199,32 +199,7 @@ https://www.youtube.com/watch?v=7O8AHC-c2aI
 https://www.youtube.com/watch?v=j514z_NKByE
 Sikkil Gurucharan - rAma nI samAnamevaru - kharaharapriyA - tyAgarAja
 
-Neelambari, Nilambari
-Melodious & Graceful Devi Keertanam "Sringara Lahari" by Kameshweri Ganesan - Sridevi Nrithyalaya
-https://www.youtube.com/watch?v=uAqMJfJB5RE
 
-
-Neelambari song | Aishwarya Srinivas
-The OG Neelambari Entry 🔥| Carnatic classical Style | Aishwarya Srinivas #trending
-https://www.youtube.com/watch?v=uYnSCDZmy2Y
-
-Uyyala Loogavayya
-https://www.youtube.com/watch?v=souK1R2-cOI
-
-Nanmayerunnoru | Neelambari | Violin Cover By Vignesh K S Use Headphones
-https://www.youtube.com/watch?v=tYgPTMsXGxw
-
-Neelambari | Raga for Krishna | Musical Video | Dance Cover |
-https://www.youtube.com/watch?v=XOX6XHjbiLw
-
-Ramana Balachandhran: Ragam Neelambari
-https://www.youtube.com/watch?v=s3pQHa0XDcM
-
-Learn Part 1/3 Kanthanodu Chennu Melle |Neelambari|Sankaran Namboothiri | Learn from the Legend
-https://www.youtube.com/watch?v=QNdzT53MWoY
-
-Ragam:Neelambari - Madhava Maamava - Nagaswaram Mylai Karthikeyan
-https://www.youtube.com/watch?v=RwUEf0nW7dw
 
 Thenmaavin Kombathu - Maleya Lola Malayalam Song | Mohanlal, Shobana
 https://www.youtube.com/watch?v=KOs4FH9UI4E
@@ -419,7 +394,7 @@ https://www.youtube.com/watch?v=tS_QAB2MXRg
 How to practice Mayamalavagowla with Gamaka's | session - 2 | Tutorial | Raga Mentor
 
 
-Mayamalavagowla ragam | saraliswaras in 3 speeds | carnatic music lesson for beginners in Telugu, Sangeetha Nilayam
+Mayamalavagowla ragam | saraliswaras in 3 speeds | carnatic music lesson for beginners in Telugu, Sangeetha Nilayam, Sangeeta Nilayam
 https://www.youtube.com/watch?v=Izk9Ahmj4F0
 
 Dhatu swaram-1 | 3 speeds in mayamalavagowla | singing tips | carnatic music lessons in Telugu
@@ -574,6 +549,18 @@ https://www.youtube.com/watch?v=deNbI3ZRx3M
 This two ragas helps to learn all Ragas ॥ singing tips ॥ carnatic music lesson for beginners in Telugu
 These two ragas are Todi and Kalyani 
 
+https://www.youtube.com/watch?v=deNbI3ZRx3M
+The author suggests practicing two specific ragas to help understand the 12 swarasthanas (musical note positions) effectively:
+
+Hanumat Todi Raga (commonly known as Todi Raga): This raga is described as having a melancholic or sad quality, utilizing flat notes (1:26-1:33, 6:12).
+Kalyani Raga: This raga is described as being very active, auspicious, and lively, utilizing sharp notes (1:33-1:40, 6:12-7:02).
+The author explains that by mastering these two contrasting ragas, students can better identify and remember all the note positions in Carnatic music (1:42-2:25).
+
+
+https://www.youtube.com/watch?v=INKhJjwU4lU
+How to practice Dwadasa Swaragatasthanas. Mayamalavagaula and Hemavati
+
+
 
 Deva Deva Kalayami Te, Rupaka Talam.
 https://www.youtube.com/watch?v=jhraHGrtv1E
@@ -696,23 +683,7 @@ https://www.youtube.com/watch?v=zNxtZFsEzfA
 For Roopaka Talam see page 36
 https://www.karnatik.com/beginners.pdf
 
-Bilahari Ragam
 
-https://www.youtube.com/watch?v=THZynXUJpe8
-Kanugontini🔸Bilahari🔹Tyagaraja 🎵 M Balamuralikrishna🔸D P Raju🔹D R Rao 🎙️ A Vintage Recording ~ 1970s
-
-
-https://www.youtube.com/watch?v=VIPqHKyrDQU
-Palumaru ninu nenu - Bilahari - M Balamuralikrishna - Annavarapu - Dandamudi - A Video
-
-https://www.youtube.com/watch?v=WNT4SxBfNHo
-Rara Venugopa Bala - Swarajathi - Bilahari Ragam, Adi Talam
-
-https://www.youtube.com/watch?v=i47cjwmppAI
-Malavika Carnatic Classes | Raravenu Gopabala Swarajathi
-
-Kanugontini | Dr M Balamuralikrishna | Thyagaraja | Bilahari
-https://www.youtube.com/watch?v=Rnx9ATiwYIU
 
 Sauraashtram
 Kala samhara | Dr M Balamuralikrishna | Thyagaraja |Sauraashtram
