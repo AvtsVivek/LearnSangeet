@@ -66,3 +66,17 @@ Here we look into 8 beautiful Janya Ragas of the 15th mela Mayamalavagowla
 మాయామాళవ గౌళ, జన్య రాగాలు
 https://www.youtube.com/watch?v=8TbNKK7jo1I
 
+
+Deva Deva Kalayami by Smt Amrutha Venkatesh || SICA @HOPEADTV
+Rupaka Talam
+https://www.youtube.com/watch?v=wUP3Qyx8dEc
+
+
+Prince Rama Varma - Deva Deva - Mayamalavagowla - Swathi Thirunal
+https://www.youtube.com/watch?v=rnyr4pTY168
+
+
+
+dEva dEva kalayAmi - Mayamalavagowla - Swati Tirunal - Nisha Rajagopal
+https://www.youtube.com/watch?v=ye4BOORuGkg
+

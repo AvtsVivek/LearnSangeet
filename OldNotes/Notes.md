@@ -561,6 +561,14 @@ https://www.youtube.com/watch?v=INKhJjwU4lU
 How to practice Dwadasa Swaragatasthanas. Mayamalavagaula and Hemavati
 
 
+Learn all 12 Swaras with just 3 Ragas | Pratibha Sarathy
+https://www.youtube.com/watch?v=xSJOWrMWNrc
+Sankarabharanam, Natabhiravi and Pantuvarali
+
+
+
+
+
 
 Deva Deva Kalayami Te, Rupaka Talam.
 https://www.youtube.com/watch?v=jhraHGrtv1E
