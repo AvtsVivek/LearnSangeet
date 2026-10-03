@@ -1,4 +1,7 @@
 
+#3 SIMPLE KRITIS FOR KIDS | GATA MOHA | TYAGARAJA |
+https://www.youtube.com/watch?v=y2TH_fjLE1k
+
 
 Learn Simple songs series | Song 2| Gata Moha Srithapala with notation- Shankarabharanam-Tyagaraja
 https://www.youtube.com/watch?v=HhC-Kl7-J3U&list=PLrLuJ3CCU5mCx3nDYDt394ktyOa9XhG8y&index=2
