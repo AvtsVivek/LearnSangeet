@@ -13,52 +13,7 @@ How to practice Swaras position | session - 1| Aalaap | Swaras Exercise | Raga M
 https://www.youtube.com/watch?v=sGYkwOhS_l4
 
 
-1. Na pali sri rama- Shankarabharanam- Adi- Thyagaraja
-https://www.youtube.com/watch?v=84EbhTWteE0
 
-https://www.youtube.com/watch?v=poOaYI2KYFI
-How to practice | Sankarabharanam | Swara pattern | Session - 2 | Tutorial | Raga Mentor
-
-2. Here we go...
-Pahi Ramachandra | Shankarabharanam | Adi | Thyagaraja
-
-https://www.youtube.com/watch?v=tKZ4b2bo5aU
-https://www.youtube.com/watch?v=nCCb6Pga6ow
-
-Prince Rama Varma - Nottuswaram Series - 30 - Pahi Ramachandra - with notation
-https://www.youtube.com/watch?v=rYoYXAcyBzI
-
-https://www.youtube.com/watch?v=MC8VovEKxqw
-
-The following says rupaka talam, it worng. 
-https://www.youtube.com/watch?v=FNDwCeSOPnQ
-
-https://www.youtube.com/watch?v=yxqzR0XYu5o
-
-Ramana Balachandhran: Ragam Shankarabharanam
-https://www.youtube.com/watch?v=aJsywTs7Vuk
-
-The following needs confirmation, 
-Shankarabharanam or some other Ragam.
-See the comments in the following video. There is one saying this is Shankarabharanam
-Not sure, needs confimation  
-https://www.youtube.com/watch?v=WWwKuLxhzJI
-Swagatam Krishna - Oothukkadu Venkata Kavi - M Balamuralikrishna - AIR Bhakti Ranjani
-
-
-How to practice | Sankarabharanam | Swara pattern | Session - 3 | Tutorial | Raga Mentor
-https://www.youtube.com/watch?v=poOaYI2KYFI
-
-
-3. Vara leela gana loola
-వరలీల గాన లోల స్వరాలతో | Vara leela gaana lola Tutorial with Swaras | Tyagaraja krithi tutorial
-https://www.youtube.com/watch?v=kkHfHUT9qLQ
-
-Vara leela gana lola... (Nottuswaram) | Sankarabharanam | Tyagaraja | Revathi S. Sarma & Nisha
-https://www.youtube.com/watch?v=gOySTiWtPto
-
-Vara Leela Gaana Lola - Lesson 1/2
-https://www.youtube.com/watch?v=LQXZDVhLBvg
 
 3. Kurinji, with notation, Sita Kalyana Vibhoga me.
 https://www.youtube.com/watch?v=Z6NdInOhaZ8
@@ -172,13 +127,7 @@ https://www.youtube.com/watch?v=M7wjqtVdNwQ
 Jagadanandakaraka: Nattaj - Aadi
 https://www.youtube.com/watch?v=QM-1rVlDskM
 
-11. Hindolam.
-Hindolam | Featuring Archana and Samanvi | MadRasana Duet
-https://www.youtube.com/watch?v=6_NBCzCZAvM
 
-Musicmatics #103 - Whenever any musician performs this composition, definitely will end up doing small brisk turns of kalpana swara-s. I hope everyone would agree with me none of us will finish this song without singing 3 thalli swaras for " ,,,PATTAM KATTA ETHAVANDI". Here goes a super simple Korvai for one of the most popular songs of RAMA NATAKAM by Arunachala Kavirayar in the ragam Hindolam.
-Musicmatics #103 - 3 thalli swaras for " ,,,PATTAM KATTA ETHAVANDI
-https://www.youtube.com/watch?v=esPRgJHTv04
 
 12. Kharaharapriya. 
 
@@ -358,18 +307,8 @@ https://www.youtube.com/watch?v=1Lc0ZPaKIL8
 Yesudas | Demonstration- Carnatic, Hindustani & Arabic Singing Styles | Toronto 1993 |S.Chandrasekar
 https://www.youtube.com/watch?v=N2ZZEDEiNo8
 
-Mohana Ragam, Ninnu kori 3 levels 
-https://www.youtube.com/watch?v=yBPG56AJiS0
 
-https://www.youtube.com/watch?v=8Rs1YsrrfLA
-Varaveena(Ragam-Mohanam, Thalam - Roopakam)
 
-ഗീതം വരവീണ മോഹനം രാഗം|താളം രുപകം |Varaveena|Raagam Mohana
-Geetam Varaveena Mohanam Ragam|Talam Rupakam
-https://www.youtube.com/watch?v=bgTAaEZz6kc
-
-https://www.youtube.com/watch?v=GUc85sZDNpU
-Gitam -2 (Ragam-Mohanam, Thalam - Roopakam)
 
 Sarali Swaram
 Mayamalavagowla | saraliswaram part-1 | violin fingar exercise | carnatic violin lesson in Telugu
@@ -471,7 +410,7 @@ Mayamalavagowla Raga Alapana by MS Subbulakshmi & T Balasaraswati
 https://www.youtube.com/watch?v=BES_G8-oKwk
 
 
-Meru Samana in Mayamalavagowla: Thyagaraja Series (with alapana, neraval and kalpanaswara)
+Meru Samana in Mayamalavagowla: Thyagaraja Series (with alapana, neraval and kalpanaswara). Adi Talam
 https://www.youtube.com/watch?v=UUHmTdKMh84
 
 
@@ -705,16 +644,8 @@ jO acyutAnantA
 https://www.youtube.com/shorts/147Sz84yu60
 
 
-Ananda Bhairavi, AnandaBhairavi Raagam
-https://www.youtube.com/watch?v=9iL8nR2eGHM
-https://www.youtube.com/shorts/59i6bazwI5M
-https://www.youtube.com/watch?v=FDQdrAla2PU
-Raga Parichayam - Anandabhairavi & Reethigowla | Comparison
 
-https://www.youtube.com/watch?v=Vb9qOzHBpsY
-CARNATIC MUSIC LESSONS - Class - 30. Allied ragas- Anandabhairavi and Reethigoula(Reethigowla).
 
-Paluke Bangaramayena Song by Dr M Balamuralikrishna | Carnatic Classical | Badrachala Ramadasu. https://www.youtube.com/watch?v=MkwL226LKyc
 
 Reethigowla 
 https://www.youtube.com/watch?v=xw89GeySyH8
@@ -844,8 +775,5 @@ https://youtu.be/getDaflknaQ?t=599
 
 
 
-https://www.youtube.com/watch?v=k4xyNIT7IsI
-Mohana Raga Patterns, Bindu Nayer, Music Mitra
-Stepping up and Tumbling down.
 
 

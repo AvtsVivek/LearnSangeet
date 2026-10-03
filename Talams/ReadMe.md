@@ -58,6 +58,8 @@ AI responses may include mistakes.
 [15] https://www.facebook.com/DarbarFestival/posts/in-carnatic-rhythm-each-individual-beat-akshara-can-be-subdivided-in-different-w/2597650223655380/
 
 
+https://www.exoticindiaart.com/book/details/108-108-bharathanatyam-jathis-tamil-and-english-with-audio-link-uam657/
+https://giri.in/products/108-bharatanatyam-jathis-tamil-english
 
 
 

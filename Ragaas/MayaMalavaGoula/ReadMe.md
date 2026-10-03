@@ -80,3 +80,10 @@ https://www.youtube.com/watch?v=rnyr4pTY168
 dEva dEva kalayAmi - Mayamalavagowla - Swati Tirunal - Nisha Rajagopal
 https://www.youtube.com/watch?v=ye4BOORuGkg
 
+Learn to sing Kalpanaswarams for Mayamalava Gowla Ragam! Live lesson.
+Rupaka Talam Deva Deva Kalayami
+https://www.youtube.com/watch?v=VVmJYihO5Y8
+
+
+https://www.youtube.com/playlist?list=PLGCWz7T6BzFXwyh15FuJyPb3PrkpyLq0g
+

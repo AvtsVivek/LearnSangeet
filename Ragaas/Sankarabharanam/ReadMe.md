@@ -1,4 +1,9 @@
 
+
+Learn Simple songs series | Song 2| Gata Moha Srithapala with notation- Shankarabharanam-Tyagaraja
+https://www.youtube.com/watch?v=HhC-Kl7-J3U&list=PLrLuJ3CCU5mCx3nDYDt394ktyOa9XhG8y&index=2
+
+
 https://www.youtube.com/watch?v=B7JmjgLsrvI
 Shambho Jagadeesha Pahimam - Shankarabharanam - Ramaswami Dikshitar - M Balamuralikrishna
 
@@ -31,6 +36,63 @@ https://www.youtube.com/watch?v=AazxDZLXP-c
 
 https://www.youtube.com/watch?v=StDffz0-euo
 Smt. Bombay Jayashri - Annai Janaki - Shankarabharanam - Arunachala Kavirayar
+
+
+
+
+1. Na pali sri rama- Shankarabharanam- Adi- Thyagaraja
+https://www.youtube.com/watch?v=84EbhTWteE0
+
+https://www.youtube.com/watch?v=poOaYI2KYFI
+How to practice | Sankarabharanam | Swara pattern | Session - 2 | Tutorial | Raga Mentor
+
+2. Here we go...
+Pahi Ramachandra | Shankarabharanam | Adi | Thyagaraja
+
+https://www.youtube.com/watch?v=tKZ4b2bo5aU
+https://www.youtube.com/watch?v=nCCb6Pga6ow
+
+Prince Rama Varma - Nottuswaram Series - 30 - Pahi Ramachandra - with notation
+https://www.youtube.com/watch?v=rYoYXAcyBzI
+
+https://www.youtube.com/watch?v=MC8VovEKxqw
+
+The following says rupaka talam, it worng. 
+https://www.youtube.com/watch?v=FNDwCeSOPnQ
+
+https://www.youtube.com/watch?v=yxqzR0XYu5o
+
+Ramana Balachandhran: Ragam Shankarabharanam
+https://www.youtube.com/watch?v=aJsywTs7Vuk
+
+The following needs confirmation, 
+Shankarabharanam or some other Ragam.
+See the comments in the following video. There is one saying this is Shankarabharanam
+Not sure, needs confimation  
+https://www.youtube.com/watch?v=WWwKuLxhzJI
+Swagatam Krishna - Oothukkadu Venkata Kavi - M Balamuralikrishna - AIR Bhakti Ranjani
+
+
+How to practice | Sankarabharanam | Swara pattern | Session - 3 | Tutorial | Raga Mentor
+https://www.youtube.com/watch?v=poOaYI2KYFI
+
+
+3. Vara leela gana loola
+వరలీల గాన లోల స్వరాలతో | Vara leela gaana lola Tutorial with Swaras | Tyagaraja krithi tutorial
+https://www.youtube.com/watch?v=kkHfHUT9qLQ
+
+Vara leela gana lola... (Nottuswaram) | Sankarabharanam | Tyagaraja | Revathi S. Sarma & Nisha
+https://www.youtube.com/watch?v=gOySTiWtPto
+
+Vara Leela Gaana Lola - Lesson 1/2
+https://www.youtube.com/watch?v=LQXZDVhLBvg
+
+
+
+
+
+
+
 
 
 The kriti "Annai Janaki Vandale" (composed by Arunachala Kavirayar from his Rama Natakam) 
