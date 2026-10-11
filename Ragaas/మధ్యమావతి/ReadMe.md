@@ -1,6 +1,38 @@
 
 
 
+
+
+
+
+Madhyamāvati
+
+https://www.youtube.com/watch?v=XRodnkWuHNs
+
+Nagumōmu Galavāni|Madhyamāvati|Saint Tyāgarāja|Tyāgarājanuta Dāsarathē
+
+https://www.youtube.com/watch?v=lHMVyIw0lIY
+KSHEERABDHI KANYAKA | MADHYAMAVATHI | ANNAMACHARYA | Sri GARIMELLA BALAKRISHNA PRASAD | AADHI TALAM.
+
+
+https://www.youtube.com/watch?v=hcU3YQBsRWw
+Ksheerabdhi Kanyakaku || Madhyamavathi Ragam || Annamacharya Sankeerthana || By Prathima Mandali
+
+
+
+https://www.youtube.com/watch?v=og79dr5kj2c
+Palinchi kamakshi - Madhymavati
+
+
+https://www.youtube.com/watch?v=yUhF9nFcdQE
+13 - Nagumomu galavani - Madhyamavati - Adi - Tyagaraja
+Dr M BalaMurali Krishna
+Music for Posterity : Sreenivasa Murthy
+
+
+
+
+
 మధ్యమావతి
 
 https://www.youtube.com/shorts/GhyMjwwwvHY

@@ -636,12 +636,7 @@ Sauraashtram
 Kala samhara | Dr M Balamuralikrishna | Thyagaraja |Sauraashtram
 https://www.youtube.com/watch?v=WwcnWl0R1F0
 
-Kapi Ragam
-https://www.youtube.com/watch?v=paHnlP9YyUU
-parulanna mata | javali | Bharatanatyam | Sri kavi
-https://youtu.be/paHnlP9YyUU?t=180
-jO acyutAnantA
-https://www.youtube.com/shorts/147Sz84yu60
+
 
 
 
@@ -691,11 +686,7 @@ https://www.youtube.com/watch?v=_fQsNbXJ0sU
 Hiding Math in Melody – An Exploration in Raga Sahana | Ramana Balachandhran
 
 
-Madhyamāvati
 
-https://www.youtube.com/watch?v=XRodnkWuHNs
-
-Nagumōmu Galavāni|Madhyamāvati|Saint Tyāgarāja|Tyāgarājanuta Dāsarathē
 
 Sarasa Sama Dana (Class / Lesson) - Kapi Narayani - DeshAdi - Tyagaraja
 https://www.youtube.com/watch?v=tOlN2ZgKgTo

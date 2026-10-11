@@ -1,7 +1,14 @@
 
 
+https://www.youtube.com/watch?v=HhC-Kl7-J3U
+Learn Simple songs series | Song 2| Gata Moha Srithapala with notation- Shankarabharanam-Tyagaraja
+
 Learn Simple songs series | Song 2| Gata Moha Srithapala with notation- Shankarabharanam-Tyagaraja
 https://www.youtube.com/watch?v=HhC-Kl7-J3U&list=PLrLuJ3CCU5mCx3nDYDt394ktyOa9XhG8y&index=2
+
+
+#3 SIMPLE KRITIS FOR KIDS | GATA MOHA | TYAGARAJA |
+https://www.youtube.com/watch?v=y2TH_fjLE1k
 
 
 https://www.youtube.com/watch?v=B7JmjgLsrvI
@@ -122,5 +129,6 @@ Charanam Highlights: The lyrical beauty reaches its peak in the description of h
 As she takes her beautiful steps, the light reflecting from her gem-studded anklets (silambu) onto the floor makes it look as though Mother Earth (Bhooma Devi) has personally laid out a soft, glowing carpet of deer skin for her daughter. 
 Furthermore, out of pure shyness and modesty, Sita does not lift her head to look directly at Lord Rama. 
 Instead, as she holds up the wedding garland, she catches a beautiful glimpse of Rama's reflection mirrored in her own shining bangles
+
 
 
