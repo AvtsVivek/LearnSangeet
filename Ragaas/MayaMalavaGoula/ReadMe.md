@@ -87,3 +87,47 @@ https://www.youtube.com/watch?v=VVmJYihO5Y8
 
 https://www.youtube.com/playlist?list=PLGCWz7T6BzFXwyh15FuJyPb3PrkpyLq0g
 
+
+
+https://www.youtube.com/watch?v=INKhJjwU4lU
+How to practice Dwadasa Swaragatasthanas. Mayamalavagaula and Hemavati
+
+Deva Deva Kalayami Te, Rupaka Talam.
+https://www.youtube.com/watch?v=jhraHGrtv1E
+
+Kalpana Swara | Mayamalavagoulai
+| Kalpana swara developing exercises for  Mayamalavagowla raga |
+https://www.youtube.com/watch?v=TbpUuB1Joeo
+
+
+Manodharmam - Kalpana Swaras
+Deva Deva Kalayami Te, Rupaka Talam. 
+https://www.youtube.com/watch?v=LqLlCNNnb20
+
+Deva Deva Kalayami by Smt Amrutha Venkatesh || SICA
+https://www.youtube.com/watch?v=wUP3Qyx8dEc
+
+How to Sing Manodharmaswaras | Sankaran Namboothiri and Students
+https://www.youtube.com/watch?v=SSB4Nsh_ZXA
+https://www.youtube.com/@CarnaticClassical/videos
+
+
+
+Meru Samana
+Meru Samana - The Concert - Dr.M.Balamurali Krishna
+https://www.youtube.com/watch?v=V1pxLNTigw8
+
+
+https://www.youtube.com/watch?v=i-DB4bpejA4
+Merusamana dheera (part 1) pallavi lesson. Jayashree Rajeev music lessons
+ayashree Rajeev music lessons
+
+https://www.youtube.com/watch?v=iwvp-9HGV7Y
+Merusamana dheera (part 2) pallavi full. Jayashree Rajeev music lessons
+
+Easy exercises for learn swarakalpana Part -1
+https://www.youtube.com/playlist?list=PLZ1ypiWRhHiuaHb-NfGzpuE2A48PPMA_G
+
+Kalpana Swarams
+Easy exercises for learn swarakalpana Part -1
+https://www.youtube.com/watch?v=-BIiHdNADeY

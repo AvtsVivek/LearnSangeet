@@ -266,9 +266,6 @@ Sri Rama Bhajan | Sing along with me and learn the bhajan | Carnatic music lesso
 darbari kanada raga
 https://www.youtube.com/watch?v=f8IRJKVReNA
 
-Todi
-Thodi Jatiswaram by SDN Latika group kids - Sridevi Nrithyalaya - Bharathanatyam Dance
-https://www.youtube.com/watch?v=uzK7-86JL8I
 
 Charikesi
 https://www.youtube.com/watch?v=KQSMMX81xiU
@@ -483,21 +480,7 @@ https://www.youtube.com/watch?v=DL1qW10l2c4
 Sangeetha Nilayam Nadopasana
 https://www.youtube.com/watch?v=MJiJ7Ja0okY
 
-Two Ragas to cover all of the Ragas.
-https://www.youtube.com/watch?v=deNbI3ZRx3M
-This two ragas helps to learn all Ragas ॥ singing tips ॥ carnatic music lesson for beginners in Telugu
-These two ragas are Todi and Kalyani 
 
-https://www.youtube.com/watch?v=deNbI3ZRx3M
-The author suggests practicing two specific ragas to help understand the 12 swarasthanas (musical note positions) effectively:
-
-Hanumat Todi Raga (commonly known as Todi Raga): This raga is described as having a melancholic or sad quality, utilizing flat notes (1:26-1:33, 6:12).
-Kalyani Raga: This raga is described as being very active, auspicious, and lively, utilizing sharp notes (1:33-1:40, 6:12-7:02).
-The author explains that by mastering these two contrasting ragas, students can better identify and remember all the note positions in Carnatic music (1:42-2:25).
-
-
-https://www.youtube.com/watch?v=INKhJjwU4lU
-How to practice Dwadasa Swaragatasthanas. Mayamalavagaula and Hemavati
 
 
 Learn all 12 Swaras with just 3 Ragas | Pratibha Sarathy
@@ -509,37 +492,9 @@ Sankarabharanam, Natabhiravi and Pantuvarali
 
 
 
-Deva Deva Kalayami Te, Rupaka Talam.
-https://www.youtube.com/watch?v=jhraHGrtv1E
-
-Kalpana Swara | Mayamalavagoulai
-| Kalpana swara developing exercises for  Mayamalavagowla raga |
-https://www.youtube.com/watch?v=TbpUuB1Joeo
 
 
-Manodharmam - Kalpana Swaras
-Deva Deva Kalayami Te, Rupaka Talam. 
-https://www.youtube.com/watch?v=LqLlCNNnb20
-
-Deva Deva Kalayami by Smt Amrutha Venkatesh || SICA
-https://www.youtube.com/watch?v=wUP3Qyx8dEc
-
-How to Sing Manodharmaswaras | Sankaran Namboothiri and Students
-https://www.youtube.com/watch?v=SSB4Nsh_ZXA
-https://www.youtube.com/@CarnaticClassical/videos
-
-
-Meru Samana
-Meru Samana - The Concert - Dr.M.Balamurali Krishna
-https://www.youtube.com/watch?v=V1pxLNTigw8
-
-With Notation and Tala
-https://www.youtube.com/watch?v=i-DB4bpejA4
-https://www.youtube.com/watch?v=iwvp-9HGV7Y
-
-Kalpana Swarams
-Easy exercises for learn swarakalpana Part -1
-https://www.youtube.com/watch?v=-BIiHdNADeY
+More MayaMalavaGowla
 
 Manodharma Sangeetam
 https://www.youtube.com/watch?v=EGXTMjWhn6k
