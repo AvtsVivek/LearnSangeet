@@ -62,5 +62,10 @@ https://www.exoticindiaart.com/book/details/108-108-bharathanatyam-jathis-tamil-
 https://giri.in/products/108-bharatanatyam-jathis-tamil-english
 
 
+Course 
+https://milapspace.com/course/building-rhythm-in-mridangam
+Building Rhythm in Mridangam
+With Patri Satish Kumar
+Play Adi, Rupaka, Misra Chaapu and Kanda Chaapu talas on the mridangam with clear articulation and controlled speed, and build your own moras and korvais.
 
 

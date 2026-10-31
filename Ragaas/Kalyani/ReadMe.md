@@ -3,10 +3,6 @@
 https://www.youtube.com/watch?v=i3XD0hvOIrg
 Amrutha Venkatesh | Vallabha Murte | Kalyani | Adi | Dr.T.V.Gopalakrishnan
 
-
-
-
-
 Misrachappu 3 Thalli korvais by my Disciple Sai Harini Use Headphones
 Mishrachapu MishraChappu
 https://www.youtube.com/watch?v=_6AtJqsZ7-o
@@ -22,4 +18,14 @@ Varnam × Madi Sarada Devi || Dr Sindhura Raghavan
 
 https://www.youtube.com/watch?v=vs6hh_ic-bY
 Madi Sarada Devi Mandirame FUSION | Anudeep Dev | Latest Telugu Songs 2018
+
+
+
+Kasudevayani | G.N. Balasubramaniam | Tyagaraja | Devotional Song | Carnatic Classical Music
+https://www.youtube.com/watch?v=w6n3m1OB0SE
+
+
+Kalpana Swarams in Kalyani with examples for Beginners
+https://www.youtube.com/watch?v=918JMYEbwKs
+
 

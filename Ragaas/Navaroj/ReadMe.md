@@ -9,3 +9,9 @@ https://www.youtube.com/watch?v=Q-mkWs9p_jw&list=PLrLuJ3CCU5mCx3nDYDt394ktyOa9Xh
 Tyagaraja's Navaneetha Chora | Dr Pantula Rama
 https://www.youtube.com/watch?v=wkCLrKwcZ7A
 
+
+Songs and Songbooks - Navaneetha Chora | Bombay Jayashri | Amrit
+https://www.youtube.com/watch?v=jTLt3Z3Lu1w
+
+
+

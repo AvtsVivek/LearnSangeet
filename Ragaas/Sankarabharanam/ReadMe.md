@@ -100,6 +100,20 @@ https://www.youtube.com/watch?v=LQXZDVhLBvg
 
 
 
+Pallavi
+Sarasa Netra Paara GuNa
+Paamara Vidya GodharaNaa
+
+Charanam
+PApa gaNaabhra samIraNa PAmara
+PAlita pAvana nAma caNa
+TApasa mAnasa sArasa 
+su-bhramar(A)nagha 
+RAghava MA ramaNa
+2 SIMPLE KRITIS FOR KIDS AND ADULTS | TYAGARAJA | Uma Prremanand |
+https://www.youtube.com/watch?v=f6uQObg5q0Q
+
+
 
 
 

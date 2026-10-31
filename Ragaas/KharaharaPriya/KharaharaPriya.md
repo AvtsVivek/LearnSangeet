@@ -20,3 +20,11 @@ Traipureem sundarim - Kharaharapriya - Nithyasree mahadevan
 https://www.youtube.com/watch?v=R8VdAthyL88
 
 
+MAMAVA PATTHABHIRAMA | S.K MAHATHI CARNATIC CONCERT | MANIRARANGU | MUTHUSWAMI DIKSHITHAR
+https://www.youtube.com/watch?v=fPBrMCRKuNQ
+
+
+
+https://www.youtube.com/watch?v=RKkRvfSmXdk
+Kharaharapriya ragalapana practice session by vishnubhatla
+
