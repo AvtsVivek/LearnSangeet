@@ -32,3 +32,4 @@ Mohanarama (mohana ragam )episode. 1 by vishnubhatla
 
 https://www.youtube.com/watch?v=WInUd4EyfHM
 Raa Raa Rajeevalochana Rama (Raga: Mohanam) - Composer: Mysore Vasudevacharya - for Learners
+Lyrics and notation for all songs are available on my website, venkatayalur.in. Click on "Notations & Audio" --> "Continue Reading"

@@ -18,6 +18,14 @@ KSHEERABDHI KANYAKA | MADHYAMAVATHI | ANNAMACHARYA | Sri GARIMELLA BALAKRISHNA P
 https://www.youtube.com/watch?v=hcU3YQBsRWw
 Ksheerabdhi Kanyakaku || Madhyamavathi Ragam || Annamacharya Sankeerthana || By Prathima Mandali
 
+Ksheerabdhi Kanyakaku is also sung in Sri Ragam and Khanda Chapu Talam by M Balamuralikrishna
+https://youtu.be/nKX1Bixozsw?t=4000
+https://open.spotify.com/track/7v2Ev4mNGgyWQmWudqqeHj?autoplay_ok=1
+
+Also sung in Kurunji
+
+
+
 
 
 https://www.youtube.com/watch?v=og79dr5kj2c

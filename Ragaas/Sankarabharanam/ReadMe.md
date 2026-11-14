@@ -150,3 +150,8 @@ Instead, as she holds up the wedding garland, she catches a beautiful glimpse of
 
 Swara Raga Sudha Sankarabharanam | Soolamangalam Sisters | Tamil Song | Carnatic Music
 https://www.youtube.com/watch?v=FKNUaR0Y6xY
+
+
+Na Pali Srirama || Ragam : Shankarabharanam || Tyagaraja Swami || నా పాలి శ్రీరామా
+Adi Talam
+https://www.youtube.com/watch?v=6sStKwrqT58
